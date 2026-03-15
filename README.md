@@ -1,0 +1,2 @@
+# FinAura_eiE3dhWLgdrWbDoKAwqx
+Innovate 2026 Challaenge FinAuraPrototype
